@@ -1,2 +1,0 @@
-# lsnglqrtmn
-My Portfolio 
